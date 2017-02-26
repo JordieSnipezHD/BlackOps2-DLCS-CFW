@@ -21,6 +21,10 @@ Link to all the DLCS
 
 5: Install the fix's files after you installed the DLC's or it will not work!
 
-Any problem or need any help please let me know.
+*Any problem or need any help please let me know by the contacts below.
 
 Thanks
+
+Skype: JordieSnipezHD
+Twitter: JordieSnipezHD
+Email:Jordell2009@hotmail.co.uk
